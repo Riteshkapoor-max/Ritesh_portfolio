@@ -4,7 +4,7 @@
 
 📍 Uttarakhand, India
 📧 [riteshkapoor78@gmail.com](mailto:riteshkapoor78@gmail.com)
-💼 LinkedIn: [Add Your LinkedIn Profile Link]
+💼 LinkedIn: [http/:www.linkedin.com/in/ritesh-kapoor-data-analytics]
 
 ---
 
